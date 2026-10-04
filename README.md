@@ -1,2 +1,2 @@
-# aokromesfans.github.io
+# aokromes.github.io
 Aokromes Fans Club
